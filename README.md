@@ -1,0 +1,1 @@
+Hola! Este es mi archivo de la pre entrega, espero les guste, es una especie de pagina de venta de videojuegos
